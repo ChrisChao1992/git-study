@@ -1,3 +1,2 @@
 I am in Shenzhen.
-Looking for sth.
-Still fighting.yes
+Go to Shanghai in the future.
