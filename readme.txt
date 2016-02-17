@@ -1,2 +1,3 @@
 I am in Shenzhen.
-Still fighting.
+Looking for sth.
+Still fighting.yes
