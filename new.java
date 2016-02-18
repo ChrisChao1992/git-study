@@ -1,2 +1,2 @@
 java is useful
-i think not
+i think so
